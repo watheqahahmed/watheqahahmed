@@ -24,7 +24,7 @@ I enjoy blending creativity with logic — from visual storytelling to exploring
 ### 📫 How to reach me
 - Email: `watheqah.ahmed@gmail.com`  
 - LinkedIn: ([https://linkedin.com/in/your-profile](https://www.linkedin.com/in/wathiqa-ahmed-3b8b42213?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app ))  
-- Facebook: [[Your Instagram](https://facebook.com/your-profile](https://www.facebook.com/share/16RrESak52/))  
+- Facebook: [[Your Facebook](https://facebook.com/your-profile](https://www.facebook.com/share/16RrESak52/))  
 
 ---
 
